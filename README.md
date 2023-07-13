@@ -1,5 +1,5 @@
-# Z E K I   M U H A M M E D   N V
-Machine Learning Engineer
+# Z E K I    M U H A M M E D    N V
+M A C H I N E    L E A R N I N I G    E N G I N E E R
 
 
 ## 😎 Connect with me
